@@ -4,4 +4,10 @@
 
 ![image alt](https://github.com/devanreedirl/ok-i-dunno-anymore./blob/about-lil-ol-me-!!/2026_10_06_0t6_Kleki.png?raw=true)
 
-╰┈➤ 
+╰┈➤ devan or dev .. 
+
+
+╰┈➤  she / any 
+
+
+╰┈➤  i love all of my friends a lot !! , 
