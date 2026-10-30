@@ -6,7 +6,7 @@
 
 
 
-╰┈➤  HELLOO !! , this lowky my first time with a read.me so go with it ok? ok.. oUo
+╰┈➤  HELLOO !! , im devan , or scraps
 
 
 
@@ -17,14 +17,15 @@
 
 
 
-╰┈➤ i mmightt add more to thiss.. YAY 
+╰┈➤ fun fact abt me : i LOVE devan reed , I love all devan skins! (( or handler skins in general.. ))
 
 
 
 
 
 
-╰┈➤  she / any 
+╰┈➤  she / they 
+     ( I'm lesbian + non-binary ) 
 
 
 
@@ -32,4 +33,12 @@
 
 
 
-╰┈➤  i love all of my friends a lot !! , 
+╰┈➤ dnis : scraps kin dbls ( for a specific reason.. ) , anyone if ur NOT my friend at all , pro / darkshippers , 
+
+
+
+
+
+
+╰┈➤ read this : if your going to be weird or talk about me or my friends in general don't come near me at all , I don't like being talked about or accused of something I or my friends never did at all. don't come near me if you talk about me and think it's okay to apologize like that makes it better. I don't like being rude to anyone but i will if I have too , if you bother me i will be rude to you, if you make jokes about me in a way that upsets me DO NOT talk to me , ok thanks !! That's All . ( (⁠.⁠ ⁠❛⁠ ⁠ᴗ⁠ ⁠❛⁠.⁠) )
+
