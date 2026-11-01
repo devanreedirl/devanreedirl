@@ -1,12 +1,4 @@
-![image alt](https://static1.glowtxt.com/data1/2/7/2/272e7078b9b7e6c41c239b6bb28b2077c9745196da39a3ee5e6b4b0d3255bfef95601890afd80709da39a3ee5e6b4b0d3255bfef95601890afd80709a51d9272dc86ffda0fccb87f3e31e04d.gif)
-
-
-
-![image alt](https://github.com/devanreedirl/ok-i-dunno-anymore./blob/about-lil-ol-me-!!/2026_10_06_0t6_Kleki.png?raw=true)
-
-
-
-╰┈➤  HELLOO !! , im devan , or scraps
+![image_alt](https://64.media.tumblr.com/d4d7f802da346e09b23bbf3e2189f8a7/c35e83c80ef4a36a-16/s400x600/ef2d6343476a162efc32b0c5ea62702bea77fba0.pnj)
 
 
 
@@ -14,31 +6,9 @@
 
 
 
-
-
-
-╰┈➤ fun fact abt me : i LOVE devan reed , I love all devan skins! (( or handler skins in general.. ))
-
+![image alt](https://64.media.tumblr.com/3b942176e7081cfb7ca0743ccc66fd88/74f663630504c132-a6/s250x400/65d94d3b5badf1340f4e5e0a5d3ff80b349061ec.pnj) . ʟ-001 ʜᴀɴᴅʟᴇʀ
 
 
 
 
-
-╰┈➤  she / they 
-     ( I'm lesbian + non-binary ) 
-
-
-
-
-
-
-
-╰┈➤ dnis : scraps kin dbls ( for a specific reason.. ) , anyone if ur NOT my friend at all , pro / darkshippers , 
-
-
-
-
-
-
-╰┈➤ read this : if your going to be weird or talk about me or my friends in general don't come near me at all , I don't like being talked about or accused of something I or my friends never did at all. don't come near me if you talk about me and think it's okay to apologize like that makes it better. I don't like being rude to anyone but i will if I have too , if you bother me i will be rude to you, if you make jokes about me in a way that upsets me DO NOT talk to me , ok thanks !! That's All . ( (⁠.⁠ ⁠❛⁠ ⁠ᴗ⁠ ⁠❛⁠.⁠) )
-
+![image_alt](https://64.media.tumblr.com/ab39989e4d38ed1bdeb162824e30a191/bdc8d855f80c5655-94/s100x200/d27428137a04c54feb85eeb3ad567f4946c772a2.gifv) 
