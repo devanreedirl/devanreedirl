@@ -15,3 +15,6 @@
 
 
 nominatess :: @devanreedirl is Ponytowns Devan Reed from Dandys world ! . 
+
+
+  devanreedirl is pt's Devan Reed from dandys world!
