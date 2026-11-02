@@ -14,4 +14,6 @@
 ![image_alt](https://64.media.tumblr.com/ab39989e4d38ed1bdeb162824e30a191/bdc8d855f80c5655-94/s100x200/d27428137a04c54feb85eeb3ad567f4946c772a2.gifv) 
 
 
-nominatess :: @devanreedirl is Ponytowns Devan Reed from Dandys world ! .  @devanreedirl is pt's Devan Reed from dandys world!
+nominatess :: @devanreedirl is Ponytowns Devan Reed from Dandys world ! . 
+
+@devanreedirl is pt's Devan Reed from dandys world!
