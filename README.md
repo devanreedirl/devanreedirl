@@ -17,3 +17,6 @@
 nominations  :: @devanreedirl is Ponytowns Devan Reed from Dandys world ! . 
 
 @devanreedirl is pt's Devan Reed from dandys world!
+
+
+DNI : domo and friends , scraps dbls ( for specific reasons .. ) , racists , preds , pros/darks etc , 
